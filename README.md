@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Master Of Computer Application(MCA)**
 
-- 📫 How to reach me **tejassonawane226@gmail.com**
+- 📫 How to reach me **tejasonawane02@gmail.com**
 
 - ⚡ Fun fact **I am Funny😅**
 
